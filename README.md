@@ -1,2 +1,0 @@
-# practical-Exam.
-Practical EXAM
